@@ -1,0 +1,2 @@
+# jenkins
+leaning jenkins commands 
