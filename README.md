@@ -1,2 +1,8 @@
 # jenkins
-leaning jenkins commands 
+khsfhf
+dfkhdkfjh'
+asdfgkjdf
+asdfjkgdf
+adfjgaf
+dfhef
+
